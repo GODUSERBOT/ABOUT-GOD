@@ -3,7 +3,7 @@
 ₐbₒᵤₜ GₒD~ᵤₛₑᵣBₒₜ Wₑ ₐᵣₑ ₙₒₜₕₙG Bᵤₜ ⱼᵤₛₜ ₐ CₒDₑᵣ Wₑ ₗₒᵥₑ Fₒᵣ Dₐₜₐ ᵢF Wₑ Wᵢₗₗ CₒDₑ Yₒᵤ Wᵢₗₗ ₕₐCₖ
 
 <!-- Your title -->
-<h1><b> Hi !👋 There I'm MR INVISIBLE🇱🇰 </b></h1>
+<h1><b> Hi !👋 There I'm MR INVISIBLE </b></h1>
 
 
 
@@ -12,19 +12,8 @@ You can use the website to generate badges: https://shields.io/
 -->
 | <a href="https://t.me/MRINVISIBLE_OFFICIAL"><img src="https://te.legra.ph/file/3fe79013833a76b47f282.jpg" width="150px" height="150px" /></a> |
 |:---------------------------------------------------------------------------------------------------------------------------------------: |
-|       **[MR INVISIBLE ](https://t.me/dihanrandila)**                                                                                |
+|       **[MR INVISIBLE ](https://t.me/MRINVISIBLE_OFFICIAL)**                                                                                |
 | <a href="https://t.me/MRINVISIBLE_OFFICIAL"><img src="https://cdn4.iconfinder.com/data/icons/logos-and-brands/512/335_Telegram_logo-256.png" width="32px" height="32px"></a> <a href="https://t.me/MRINVISIBLE_OFFICIAL"><img src="https://cdn2.iconfinder.com/data/icons/social-icons-33/128/Instagram-256.png" width="32px" height="32px"></a>                                                                                                                                                                <a href="https://www.youtube.com/channel/UCJYoog0kYNDridrBlcvwMoQ"><img src="https://cdn3.iconfinder.com/data/icons/2018-social-media-logotypes/1000/2018_social_media_popular_app_logo_youtube-256.png" width="32px" height="32px"></a>              <a href="https://t.me/MRINVISIBLE_OFFICIAL"><img src="https://cdn2.iconfinder.com/data/icons/social-media-2285/512/1_Twitter_colored_svg-256.png" width="32px" height="32px">    
-
-
-
-
-<br>
-
-
-
-
-                                                               
-
 
 <!-- Talking about you -->
 **Talking about Personal Stuffs:**
