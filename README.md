@@ -1,3 +1,4 @@
+![wallpaper2you_12294](https://user-images.githubusercontent.com/104170029/164948171-5411ad67-6107-4a68-af90-b8b447fd15c8.png)
 ![wallpaper2you_12327](https://user-images.githubusercontent.com/104170029/164948090-3ee2cd5a-6ecd-41d8-a204-fd06e852aaf7.jpg)
 # ABOUT-GOD
 ₐbₒᵤₜ GₒD~ᵤₛₑᵣBₒₜ Wₑ ₐᵣₑ ₙₒₜₕₙG Bᵤₜ ⱼᵤₛₜ ₐ CₒDₑᵣ Wₑ ₗₒᵥₑ Fₒᵣ Dₐₜₐ ᵢF Wₑ Wᵢₗₗ CₒDₑ Yₒᵤ Wᵢₗₗ ₕₐCₖ
@@ -91,12 +92,12 @@ I created these images, feel free to use them.
 
 <p align="center">
   <a href="https://github.com/GODUSERBOT">
-    <img src="https://github-readme-streak-stats.herokuapp.com/?user=dihanofficial#version3"/>
+    <img src="https://github-readme-streak-stats.herokuapp.com/?user=invisible#version3"/>
   </a>
 </p>
 <a href="h
 
-  <a href="https://github.com/GODUSERBOT"><img alt="INVISIBLE's Activity Graph" src="https://activity-graph.herokuapp.com/graph?username=Dihanofficial&bg_color=1F222E&color=F8D866&line=F85D7F&point=FFFFFF&hide_border=true" /></a>
+  <a href="https://github.com/GODUSERBOT"><img alt="INVISIBLE's Activity Graph" src="https://activity-graph.herokuapp.com/graph?username=INVIBILE&bg_color=1F222E&color=F8D866&line=F85D7F&point=FFFFFF&hide_border=true" /></a>
 
 
 
