@@ -1,3 +1,4 @@
+![wallpaper2you_12327](https://user-images.githubusercontent.com/104170029/164948090-3ee2cd5a-6ecd-41d8-a204-fd06e852aaf7.jpg)
 # ABOUT-GOD
 ₐbₒᵤₜ GₒD~ᵤₛₑᵣBₒₜ Wₑ ₐᵣₑ ₙₒₜₕₙG Bᵤₜ ⱼᵤₛₜ ₐ CₒDₑᵣ Wₑ ₗₒᵥₑ Fₒᵣ Dₐₜₐ ᵢF Wₑ Wᵢₗₗ CₒDₑ Yₒᵤ Wᵢₗₗ ₕₐCₖ
 
