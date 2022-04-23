@@ -1,4 +1,4 @@
-![wallpaper2you_12327](https://user-images.githubusercontent.com/104170029/164948090-3ee2cd5a-6ecd-41d8-a204-fd06e852aaf7.jpg)
+![wallpaper2you_12294](https://user-images.githubusercontent.com/104170029/164948209-d8af5e6d-a835-45ca-85dc-0170b4420cea.png)
 # ABOUT-GOD
 ₐbₒᵤₜ GₒD~ᵤₛₑᵣBₒₜ Wₑ ₐᵣₑ ₙₒₜₕₙG Bᵤₜ ⱼᵤₛₜ ₐ CₒDₑᵣ Wₑ ₗₒᵥₑ Fₒᵣ Dₐₜₐ ᵢF Wₑ Wᵢₗₗ CₒDₑ Yₒᵤ Wᵢₗₗ ₕₐCₖ
 
